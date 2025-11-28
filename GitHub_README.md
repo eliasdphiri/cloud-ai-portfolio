@@ -168,7 +168,7 @@ portfolio-projects/
 - **Location:** Zambia (Open to Global Remote)
 - **Email:** eliasdphiri217@gmail.com
 - **LinkedIn:** [linkedin.com/in/elias-dan-phiri](https://linkedin.com/in/elias-dan-phiri)
-- **Phone:** +260 971 793 180
+- **Phone:** +260 971 793 180 (ZM) OR +27 81 090 8113 (SA)
 
 ## Open to Opportunities
 
